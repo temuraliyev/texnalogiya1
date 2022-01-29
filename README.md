@@ -1,0 +1,2 @@
+# texnalogiya1
+temur
